@@ -7,4 +7,4 @@
 
 ## follow us
 
-https://last.fm/music/dżemochłon
+[last.fm/music/dżemochłon](https://www.last.fm/music/Dżemochłon)
